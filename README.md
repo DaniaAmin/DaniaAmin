@@ -6,5 +6,6 @@
 - 📫 How to reach me: daniaamin.khan@gmail.com
 - ⚡ Fun fact: I'm funny xD
 
-![WhatsApp Image 2024-06-20 at 19 53 53_2dd711e9](https://github.com/DaniaAmin/DaniaAmin/assets/164983707/e23ecf8f-6b5a-489b-acda-c58faf21bc85)
-![WhatsApp Image 2024-06-20 at 19 53 52_fd4b276a](https://github.com/DaniaAmin/DaniaAmin/assets/164983707/a1442a11-78a2-43be-900d-0dfb333d8971)
+
+![image](https://github.com/DaniaAmin/DaniaAmin/assets/164983707/2b249374-48da-438c-9afe-60d37c2d8d32)
+
