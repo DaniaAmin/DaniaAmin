@@ -7,5 +7,5 @@
 - ⚡ Fun fact: I'm funny xD
 
 
-![image](https://github.com/DaniaAmin/DaniaAmin/assets/164983707/2b249374-48da-438c-9afe-60d37c2d8d32)
+
 
